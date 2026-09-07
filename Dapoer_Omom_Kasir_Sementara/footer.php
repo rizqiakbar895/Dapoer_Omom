@@ -1,1 +1,0 @@
-</main><footer><div><b>Dapoer Omom</b><span>Rasa Mantap, Harga Bersahabat</span></div><span>© 2026 Dapoer Omom • Website Promosi & Kasir</span></footer></body></html>
